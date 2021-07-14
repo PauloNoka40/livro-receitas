@@ -8,7 +8,10 @@ Bem vindo ao meu livro de receitas :wave:
 
 - Pavê :cookie:
 
-   
+- Lasanha :pizza:
+
+  ​
+
 
   ​
 
